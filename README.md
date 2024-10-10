@@ -1,5 +1,5 @@
 ## Hi there 👋
-for freelance work? do reach, email :)
+for freelance work? do reach, email :) adarshkarn222003@gmail.com
 
 if you like what i do, maybe consider buying me a coffee/tea 🥺👉👈
 
@@ -7,6 +7,8 @@ if you like what i do, maybe consider buying me a coffee/tea 🥺👉👈
 🚧 my todoist stats:
 
 🌸 Completed 0 tasks today
+
+
 
 
 <!--
