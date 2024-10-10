@@ -1,4 +1,13 @@
 ## Hi there 👋
+for freelance work? do reach, email :)
+
+if you like what i do, maybe consider buying me a coffee/tea 🥺👉👈
+
+
+🚧 my todoist stats:
+
+🌸 Completed 0 tasks today
+
 
 <!--
 **Adarsh22karn/Adarsh22karn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
